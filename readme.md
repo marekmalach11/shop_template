@@ -1,0 +1,1 @@
+Preview page click here: https://marekmalach11.github.io/shop_template/
